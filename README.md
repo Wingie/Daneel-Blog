@@ -8,7 +8,7 @@ You can expect a new chapter everyday. :)
 
 For more of my work, please follow me on social networks.
 
-> wingztv.com
-> wingstonsharon.tumblr.com
-> twitter.com/wingston
-> facebook.com/wingztv
+* wingztv.com
+* wingstonsharon.tumblr.com
+* twitter.com/wingston
+* facebook.com/wingztv
